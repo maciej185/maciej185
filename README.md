@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @maciej185
-I'm here to learn fun stuff
+I'm here to learn stuff
